@@ -7,7 +7,8 @@ Contacts:
 * GitHub: agrdmg
 
 About Me
-I have good interpersonal communication skills, I am a great team worker and I really want to learn and develop new skills.I didn't have any experience in this field and it's hard for me as a beginner, but I will definitely try and cope with everything.
+I have good interpersonal skills, I'm a great team worker, and I really want to learn and develop new skills.I didn't have any experience in this area, and it's difficult for me as a beginner, but I will definitely try to cope with everything.
+I am fast learner and hardworking
 
 Skills
 * Unfortunately, there are no work skills, but I can handle it.
